@@ -1,1 +1,1 @@
-# practialgit
+Good thinks take time
